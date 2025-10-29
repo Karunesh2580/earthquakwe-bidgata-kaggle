@@ -1,0 +1,1 @@
+# earthquakwe-bidgata-kaggle
